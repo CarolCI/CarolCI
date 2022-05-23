@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CarolCI
+- 🌱 I’m currently learning about Design
+- 📫 How to reach me ... I don't know either eheh!
